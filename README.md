@@ -1,5 +1,6 @@
 ERNESTO BLANCO RODRÍGUEZ
 Desarrollador de Software
+
 La Habana, Cuba · ernestoblanc22@gmail.com · +53 51622051 · LinkedIn · GitHub
 
 Educación
